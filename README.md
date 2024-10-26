@@ -1,4 +1,4 @@
-## Olá, Eu sou o Paulo Otávio 👋
+## Olá, Eu sou o Paulo 👋
 
 
 - 🔭 Buscando transição de carreira e recolocação no mercado de trabalho 
